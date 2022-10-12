@@ -1,3 +1,3 @@
-# Mockup-Wireframe-Project-1
+# Mockup and Wireframe Project
 
-[Mockup-Wireframe-Project-1](https://miro.com/app/board/uXjVPOt2yeM=/?share_link_id=601646306425)
+[Mockup and Wireframe Project](https://miro.com/app/board/uXjVPOt2yeM=/?share_link_id=601646306425)
